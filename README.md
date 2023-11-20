@@ -1,2 +1,3 @@
 # CursoGit
-Curso do Learning lab
+CURSO FEITO NO DIA 20/11/2023-21/11/2023 COM O PESSOAL DO LEARNINGLAB.
+MUITO TOP 😁😁😁😁😁
